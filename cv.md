@@ -1,6 +1,6 @@
 1. **Cherkas Yauheni**
 
-2. e-mail: cherkasyauheni@gmail.com; **phone number:** +37529 831 31 77
+2. **e-mail:** cherkasyauheni@gmail.com; **phone number:** +37529 831 31 77
 
 3. Try to find new useful ways of learning new important information to change industry. Have more stimulus to devote time to English.And eventually find a new job.
 
